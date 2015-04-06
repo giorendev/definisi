@@ -1,0 +1,2 @@
+# definisi
+Dasar teori
